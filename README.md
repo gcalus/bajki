@@ -3,6 +3,7 @@
 ## Franklin
 
 https://www.youtube.com/watch?v=BzSm7tWpFXI&list=PLUIixndCOJ8yauahIoHoWQhKk_NmHpEOb
+![Franklin](https://img.youtube.com/vi/BzSm7tWpFXI/0.jpg)
 
 ## Franklin zabawkowy
 
