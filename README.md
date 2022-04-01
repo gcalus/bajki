@@ -30,8 +30,33 @@
 
 ![Franklin](https://img.youtube.com/vi/c6tS29wo8kg/0.jpg)
 
-## Muminki
 
-[Link do bajki](https://www.youtube.com/watch?v=za5qalOgt00&list=PLL0kUUHCSZA6VQjBcZ8TJ-tshEMyPsSt6)
+## Pippi
 
-![Franklin](https://img.youtube.com/vi/za5qalOgt00/0.jpg)
+[Link do bajki](https://www.youtube.com/watch?v=g9_mKqeCB0E&list=PLUIixndCOJ8zETNen8Cl5gL51QyT7-bYy)
+
+![bajka](https://www.youtube.com/watch?v=g9_mKqeCB0E&list=PLUIixndCOJ8zETNen8Cl5gL51QyT7-bYy)
+
+## Mały miś
+
+[Link do bajki](https://www.youtube.com/watch?v=feWxizU6OWM&list=PLUIixndCOJ8xIlKX6JnYNlPOtwMKkeaqG)
+
+![bajka](https://www.youtube.com/watch?v=feWxizU6OWM&list=PLUIixndCOJ8xIlKX6JnYNlPOtwMKkeaqG)
+
+## Pippi
+
+[Link do bajki](https://www.youtube.com/watch?v=feWxizU6OWM&list=PLUIixndCOJ8xIlKX6JnYNlPOtwMKkeaqG)
+
+![bajka](https://www.youtube.com/watch?v=feWxizU6OWM&list=PLUIixndCOJ8xIlKX6JnYNlPOtwMKkeaqG)
+
+## Topsy and Tim
+
+[Link do bajki](https://www.youtube.com/watch?v=6PV-85gnxkw&list=PLcgpxXqYALm_hq6k9GeLBtrzoMHf_UvVT)
+
+![bajka](https://www.youtube.com/watch?v=6PV-85gnxkw&list=PLcgpxXqYALm_hq6k9GeLBtrzoMHf_UvVT)
+
+## Kubuś puchatek
+
+[Link do bajki](https://www.youtube.com/watch?v=D5FhBfjMCu0&list=PLRM5ZGRtgZcrpG34UBn6sMspgZdb2aKVD)
+
+![bajka](https://www.youtube.com/watch?v=D5FhBfjMCu0&list=PLRM5ZGRtgZcrpG34UBn6sMspgZdb2aKVD)
