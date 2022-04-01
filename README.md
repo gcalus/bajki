@@ -35,28 +35,28 @@
 
 [Link do bajki](https://www.youtube.com/watch?v=g9_mKqeCB0E&list=PLUIixndCOJ8zETNen8Cl5gL51QyT7-bYy)
 
-![bajka](https://www.youtube.com/watch?v=g9_mKqeCB0E&list=PLUIixndCOJ8zETNen8Cl5gL51QyT7-bYy)
+![bajka](https://img.youtube.com/vi/g9_mKqeCB0E/0.jpg)
 
 ## Mały miś
 
 [Link do bajki](https://www.youtube.com/watch?v=feWxizU6OWM&list=PLUIixndCOJ8xIlKX6JnYNlPOtwMKkeaqG)
 
-![bajka](https://www.youtube.com/watch?v=feWxizU6OWM&list=PLUIixndCOJ8xIlKX6JnYNlPOtwMKkeaqG)
+![bajka](https://img.youtube.com/vi/feWxizU6OWM/0.jpg)
 
 ## Pippi
 
 [Link do bajki](https://www.youtube.com/watch?v=feWxizU6OWM&list=PLUIixndCOJ8xIlKX6JnYNlPOtwMKkeaqG)
 
-![bajka](https://www.youtube.com/watch?v=feWxizU6OWM&list=PLUIixndCOJ8xIlKX6JnYNlPOtwMKkeaqG)
+![bajka](https://img.youtube.com/vi/feWxizU6OWM/0.jpg)
 
 ## Topsy and Tim
 
 [Link do bajki](https://www.youtube.com/watch?v=6PV-85gnxkw&list=PLcgpxXqYALm_hq6k9GeLBtrzoMHf_UvVT)
 
-![bajka](https://www.youtube.com/watch?v=6PV-85gnxkw&list=PLcgpxXqYALm_hq6k9GeLBtrzoMHf_UvVT)
+![bajka](https://img.youtube.com/vi/85gnxkw/0.jpg)
 
 ## Kubuś puchatek
 
 [Link do bajki](https://www.youtube.com/watch?v=D5FhBfjMCu0&list=PLRM5ZGRtgZcrpG34UBn6sMspgZdb2aKVD)
 
-![bajka](https://www.youtube.com/watch?v=D5FhBfjMCu0&list=PLRM5ZGRtgZcrpG34UBn6sMspgZdb2aKVD)
+![bajka](https://img.youtube.com/vi/D5FhBfjMCu0/0.jpg)
