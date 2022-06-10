@@ -60,3 +60,11 @@
 [Link do bajki](https://www.youtube.com/watch?v=D5FhBfjMCu0&list=PLRM5ZGRtgZcrpG34UBn6sMspgZdb2aKVD)
 
 ![bajka](https://img.youtube.com/vi/D5FhBfjMCu0/0.jpg)
+
+## Nasze magiczne Encanto
+
+[Link do bajki](https://www.youtube.com/watch?v=qfKmAD8NUtU&list=PLfzAY1TPZVxEWP5j9vwWC5Hl3Rj9kR_Bn)
+
+![bajka](https://img.youtube.com/vi/qfKmAD8NUtU/0.jpg)
+
+
